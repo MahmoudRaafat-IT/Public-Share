@@ -23,7 +23,7 @@ My goal is to **share knowledge, help others learn, and make IT tasks simpler**.
 ---
 
 ## 🌐 LinkedIn
-Related LinkedIn posts can be found here: [LinkedIn](www.linkedin.com/in/mahmoud-raafat-network)  
+Related LinkedIn posts can be found here: [LinkedIn](https://www.linkedin.com/in/mahmoud-raafat-network)
 
 ---
 
